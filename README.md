@@ -17,6 +17,7 @@ i have social anxiety so if i dont talk to u first please int w me!! im super an
 
 i dont use tone tags, but if you want me to PLEASEPLASE LMK OKAY
 
+
 **FANDOMS IM IN:**
 
 PHIGHTING!
@@ -37,19 +38,23 @@ COTL
 
 And A LOT MORE!!
 
+
 **DNI/Thin ice:**
+
 
 **DNI:** msi fans (sorry) , basic dni (proshippers, zoos) incest likers euugh and a lot mroe i js cant think
 
+
 **THIN ICE:** genshin fans (if im already friends w u its ok ) omori fans , idk tbh, 
+
 
 **DISCOMFORTS:**
 partybeetle(reminds me of someone and idc if u ship it just please dont mention it around me. and if ur annoying abt it pls block me bc u know who u r LFMAO)
 
-
 dsmp (bad memories w fans)
 
 i guess thats it, but pls dont worry if u already are interested in these things! js dont mention it around me :)
+
 
 **COPING LINKS:**
 
