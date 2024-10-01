@@ -45,8 +45,9 @@ THIN ICE: genshin fans (if im already friends w u its ok ) omori fans , idk tbh,
 
 DISCOMFORTS:
 partybeetle(reminds me of someone and idc if u ship it just please dont mention it around me. and if ur annoying abt it pls block me bc u know who u r LFMAO)
-d
-smp (bad memories w fans)
+
+
+dsmp (bad memories w fans)
 
 i guess thats it, but pls dont worry if u already are interested in these things! js dont mention it around me :)
 
