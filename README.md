@@ -58,9 +58,9 @@ i guess thats it, but pls dont worry if u already are interested in these things
 
 **COPING LINKS:**
 
-Sword phighting
+Sword (P!)
 
-Hyperlaser phighting
+Hyperlaser (P!)
 
 Narinder (cult of the lamb)
 
