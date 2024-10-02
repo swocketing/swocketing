@@ -11,7 +11,7 @@ i have adhd and if i forget things easily,, im ssosoosos sorry! i also have a pr
 
 i dont like sitting alone (i know its dumb) if u see me sitting alone pls sit with me! im super friendly and i need more friends. (C + H IS ALWAYS WELCOME EVEN THO I DONT HAVE IT IN MY NAME!!!!!)
 
-i usually sit w my friends (sling , bryce , ren , scythe and a lot more!) if u see me sitting w them u can totally talk to me! i dont mind whatsoever
+i usually sit w my friends (sling ,  ren , scythe and a lot more!) if u see me sitting w them u can totally talk to me! i dont mind whatsoever
 
 i have social anxiety so if i dont talk to u first please int w me!! im super anxious and if u see me in the phighting area looking at u its probably bc i think ur pony is pretty,,
 
