@@ -3,6 +3,8 @@ hihi! i go by sword/nari/zane!!
 
 i also use he him pronouns heh no they them pls
 
+i sit in the sprunki / phighting / sonic area!! 
+
 im french ( sorry ) and Mexican!! i do say slurs i can reclaim and if that makes u uncomfy pls tell me! im kinda bad w tone,,
 
 **BFYI:**
