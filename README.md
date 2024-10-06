@@ -20,7 +20,9 @@ i have social anxiety so if i dont talk to u first please int w me!! im super an
 i dont use tone tags, but if you want me to PLEASEPLASE LMK OKAY
 
 
-**FANDOMS IM IN:**
+**INTERESTS:**
+
+TF2
 
 PHIGHTING!
 
@@ -28,7 +30,7 @@ FNAF
 
 Dragon ball
 
-ONe piece
+One piece
 
 pressure
 
@@ -38,7 +40,7 @@ MHA
 
 COTL
 
-And A LOT MORE!!
+**And A LOT MORE!!**
 
 
 **DNI/Thin ice:**
