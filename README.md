@@ -3,7 +3,7 @@ hihi! i go by sword/nari/zane!!
 
 i also use he him pronouns heh no they them pls
 
-i sit in the sprunki / phighting / sonic area!! 
+i sit in the sprunki / phighting / jjk area!! 
 
 im french ( sorry ) and Mexican!! i do say slurs i can reclaim and if that makes u uncomfy pls tell me! im kinda bad w tone,,
 
@@ -23,6 +23,8 @@ i dont use tone tags, but if you want me to PLEASEPLASE LMK OKAY
 **INTERESTS:**
 
 TF2
+
+JJK
 
 PHIGHTING!
 
@@ -57,7 +59,7 @@ partybeetle(reminds me of someone and idc if u ship it just please dont mention 
 
 dsmp (bad memories w fans)
 
-i guess thats it, but pls dont worry if u already are interested in these things! js dont mention it around me :)
+i guess thats it, but pls dont worry if u already are interested in these things! js dont mention it around me :) (this is abt the thin ice btw!!)
 
 
 **COPING LINKS:**
