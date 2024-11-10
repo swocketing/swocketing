@@ -3,4 +3,4 @@
 
 need a glisten to my goob . draw on strwpg ( c + h always pls ) cud comf
 
-coping links. astro(dandys world) , sword(phighting) , nardiner (cotl) 
+coping links. astro (dandys world) , sword (phighting) , nardiner (cotl) 
