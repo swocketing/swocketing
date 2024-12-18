@@ -7,7 +7,7 @@
 
 
 <p align="center">
-	biggest astro copinglink . c + h always
+	draw on strawpage . c + h always
 </p>
 
 <p align= "center">
