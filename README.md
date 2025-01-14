@@ -7,7 +7,7 @@
 
 
 <p align="center">
-	draw on strawpage . c + h always
+	draw on strawpage . c + h always (please)
 </p>
 
 <p align= "center">
