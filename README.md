@@ -7,7 +7,7 @@
 
 
 <p align="center">
-	draw on strawpage . c + h always (please)
+	draw on strawpage . sign ata
 </p>
 
 <p align= "center">
